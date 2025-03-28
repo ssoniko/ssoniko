@@ -1,6 +1,7 @@
 HIII!! PLS INT WITH ME WHEN YOU SEE ME!! I LOVEE MAKING NEW FRIENDS (im too scared to int with people)
 
-
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ 
 **ALSO IF YOU LIKE SONEXE INT NOW NOW NOW NOW!!!!!!!! IM THEE 2# SONEXE SHIPPER, right under my partner who's THE 1# SHIPPER!!!!!!
 SO IF YOU LIKE/RESPECT THAT SHIP PLS INT!!!**
 
