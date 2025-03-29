@@ -16,3 +16,4 @@ SO IF YOU LIKE/RESPECT THAT SHIP PLS INT!!!**
 
 ALSO NO!! EXE AND SONIC ARE NOT THE SAME PEOPLE!!! GRHHH FAKE FANS DNI IF YOU THINK THAT
 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ssoniko)
