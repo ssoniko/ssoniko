@@ -1,3 +1,5 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ssoniko)
+
 HIII!! PLS INT WITH ME WHEN YOU SEE ME!! I LOVEE MAKING NEW FRIENDS (im too scared to int with people)
 JUST BEWARE THAT I'M RL ENERGETIC AND I LOVE SAYING RANDOM STUFF...!
 
@@ -16,4 +18,4 @@ SO IF YOU LIKE/RESPECT THAT SHIP PLS INT!!!**
 
 ALSO NO!! EXE AND SONIC ARE NOT THE SAME PEOPLE!!! GRHHH FAKE FANS DNI IF YOU THINK THAT
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ssoniko)
+
