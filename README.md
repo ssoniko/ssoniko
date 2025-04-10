@@ -2,9 +2,6 @@
 
 HIII!! PLS INT WITH ME WHEN YOU SEE ME!! I LOVEE MAKING NEW FRIENDS (im too scared to int with people)
 JUST BEWARE THAT I'M RL ENERGETIC AND I LOVE SAYING RANDOM STUFF...!
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- 
-old friends are free to int still just iwc, it takes time for me to get comfortable around u guys again!
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
