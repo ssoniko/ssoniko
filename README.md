@@ -23,6 +23,8 @@ ALSO NO!! EXE AND SONIC ARE NOT THE SAME PEOPLE!!! GRHHH FAKE FANS DNI IF YOU TH
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-**MY GIFT SKINS ALWAYS HAVE THE SIGN " 🐾 ", if i make a gift skin for you PLEASE put that emoji in the name.**
-i also make gift skins for my partner, they usually put **" by niko "** in their name... yeah, those skins are also made by me.
+**MY GIFT SKINS ALWAYS HAVE THE SIGN " 🐾 ",
+if i make a gift skin for you PLEASE put that emoji in the name.**
+i also make gift skins for my partner, they usually put **" by niko "** in their name...
+yeah, those skins are also made by me.
 
