@@ -1,5 +1,4 @@
-
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ssoniko&color=red)
+![views](https://komarev.com/ghpvc/?username=ssoniko&abbreviated=true&&color=red&label=PROFILE+VIEWS)
 
 HIII!! PLS INT WITH ME WHEN YOU SEE ME!! I LOVEE MAKING NEW FRIENDS (im too scared to int with people)
 JUST BEWARE THAT I'M RL ENERGETIC AND I LOVE SAYING RANDOM STUFF...!
