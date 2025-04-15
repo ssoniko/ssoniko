@@ -3,11 +3,9 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  
-HIII!! PLS INT WITH ME WHEN YOU SEE ME!! I LOVEE MAKING NEW FRIENDS (im too scared to int with people)
-JUST BEWARE THAT I'M RL ENERGETIC AND I LOVE SAYING RANDOM STUFF...!
- ⠀⠀⠀⠀⠀⠀⠀
- 
- **ALSO SIGN MY ATA PLS**
+**PLEASE READ MY TWITTER AND PRONOUNS PAGE BEFORE INTERACTING...**
+
+want to be my friend? go on! i love meeting new people, it makes me really happy when someone interacts with me... if you feel too shy to approach me, sign my ata!
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
@@ -21,11 +19,9 @@ JUST BEWARE THAT I'M RL ENERGETIC AND I LOVE SAYING RANDOM STUFF...!
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-**IF YOU LIKE SONEXE INT NOW NOW NOW NOW!!!!!!!! IM A BIG SONEXE SHIPPER...
-SO IF YOU LIKE/RESPECT THAT SHIP PLS INT!!!**
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- 
- **ADDING TO THIS:** NO!! EXE AND SONIC ARE NOT THE SAME PEOPLE!!! GRHHH FAKE FANS DNI IF YOU THINK THAT
+**SONEXE SHIPPERS INT**
+
+other sonic ships please iwc, some sonic ships make me uncomfortable
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  
