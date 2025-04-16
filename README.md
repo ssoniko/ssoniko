@@ -20,12 +20,15 @@ want to be my friend? go on! i love meeting new people, it makes me really happy
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 **CEO OF KOLOSONEXE**
+
 aka Kolossos x Sonic x Exe
 
 **PLS PLS INT IF YOU LIKE THIS SHIP**
+
 or int if you like Sonexe / Koloexe
 
-
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ 
 other sonic ships please iwc, some sonic ships make me uncomfortable
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
