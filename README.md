@@ -12,7 +12,7 @@ want to be my friend? go on! i love meeting new people, it makes me really happy
 ![](https://64.media.tumblr.com/06c25249a5b6bacf3f96fe99f3bd330e/04d9330141ccd020-cc/s1280x1920/24767139a5db8a43ac45635d02a84066ca37a1cb.pnj)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-![help](https://komarev.com/ghpvc/?username=ssoniko&abbreviated=true&&color=6a040f&label=SOUL+VISITORS+:)
+![help](https://komarev.com/ghpvc/?username=ssoniko&abbreviated=false&&color=6a040f&label=SOUL+VISITORS+:)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ![](https://64.media.tumblr.com/06c25249a5b6bacf3f96fe99f3bd330e/04d9330141ccd020-cc/s1280x1920/24767139a5db8a43ac45635d02a84066ca37a1cb.pnj) 
