@@ -26,7 +26,6 @@ do not ask me why i ship this, it's mostly because of fictkin stuff but... i lik
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 PLS PLS INT IF YOU LIKE THAT SHIP... or int if you like Sonexe / Koloexe / Kolonic !!
-yes im also a big Sonexe shipper.
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  
