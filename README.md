@@ -25,7 +25,7 @@ want to be my friend? go on! i love meeting new people, it makes me really happy
 do not ask me why i ship this, it's mostly because of fictkin stuff but... i like them alot! i won't force anyone to ship this, it's just a funny lil ship i'd rather ship than the other popular ships.
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-PLS PLS INT IF YOU LIKE THAT SHIP... or int if you like Sonexe / Koloexe!!
+PLS PLS INT IF YOU LIKE THAT SHIP... or int if you like Sonexe / Koloexe / Kolonic !!
 yes im also a big Sonexe shipper.
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
