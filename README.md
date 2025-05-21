@@ -3,7 +3,7 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  
-**PLEASE READ MY PRONOUNS PAGE BEFORE INTERACTING...**
+**PLEASE READ MY STRAWPAGE + PRONOUNS PAGE BEFORE INTERACTING...**
 
 want to be my friend? go on! i love meeting new people, it makes me really happy when someone interacts with me... if you feel too shy to approach me, sign my ata!
 
