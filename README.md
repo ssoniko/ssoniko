@@ -20,6 +20,7 @@ want to be my friend? go on! i love meeting new people, it makes me really happy
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 **CEO OF KOLOSONEXE...**  (Kolossos x Sonic x Exe)
+PLUS **#2 SONEXE FAN** right behind my wife!
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 do not ask me why i ship this, it's mostly because of fictkin stuff but... i like them alot! i won't force anyone to ship this, it's just a funny lil ship i'd rather ship than the other popular ships.
