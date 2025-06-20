@@ -26,7 +26,7 @@ PLUS **#2 SONEXE FAN** right behind my wife!
 do not ask me why i ship this, it's mostly because of fictkin stuff but... i like them alot! i won't force anyone to ship this, it's just a funny lil ship i'd rather ship than the other popular ships.
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-SONEXE FANS JOIN THE SONEXE OFFICIAL DISCORD SERVER [. . .](https://discord.gg/5xc7HV565H)
+[SONEXE FANS JOIN THE SONEXE OFFICIAL DISCORD SERVER . . .](https://discord.gg/5xc7HV565H)
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  
