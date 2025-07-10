@@ -19,6 +19,10 @@ want to be my friend? go on! i love meeting new people, it makes me really happy
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
+**FOR THE SONIC FANDOM V**
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
 **CEO OF KOLOSONEXE...**  (Kolossos x Sonic x Exe)
 PLUS **#2 SONEXE FAN** right behind my wife!
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -27,11 +31,6 @@ do not ask me why i ship this, it's mostly because of fictkin stuff but... i lik
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 [SONEXE FANS JOIN THE SONEXE OFFICIAL DISCORD SERVER](https://discord.gg/5xc7HV565H)
-
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- 
-
-other sonic ships please iwc, some sonic ships make me uncomfortable.
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  
