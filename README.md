@@ -2,7 +2,7 @@
 ](https://64.media.tumblr.com/db9ff873468e8a4d06b5b06d0c583bcf/e76faec27ac673e0-f1/s1280x1920/2ebee89017620082421c281d30a6178156a70e45.pnj)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-[pronouns . page](https://pronouns.page/@ssoniko)⠀⠀ -⠀⠀ [ata](https://ssoniko.atabook.org/)⠀⠀ -⠀⠀ [twitter](https://x.com/ss0niko)
+[ata](https://ssoniko.atabook.org/)⠀⠀ -⠀⠀ [pronouns . page](https://pronouns.page/@ssoniko)⠀⠀ -⠀⠀ [twitter](https://x.com/ss0niko)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ![](https://64.media.tumblr.com/a73cb46f86af6c8e2a18de930537e94d/63a0c44f7851f623-06/s1280x1920/0b4318b16d30475249e3ecb87f2bcb2404699aec.pnj)
