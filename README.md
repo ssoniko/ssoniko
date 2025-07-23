@@ -1,8 +1,7 @@
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <p align="center">
   <a href="https://ssoniko.atabook.org/">ata</a> ⠀ ⠀-⠀ ⠀
-  <a href="https://pronouns.page/@ssoniko">pronouns . page</a>
-</p>
+  <a href="https://pronouns.page/@ssoniko">pronouns . page</a> ⠀ ⠀-⠀ ⠀ <a href="https://x.com/ss0niko">twitter</a></p>
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   
